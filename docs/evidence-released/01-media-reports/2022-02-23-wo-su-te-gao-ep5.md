@@ -15,16 +15,20 @@
 
 2月22日，丰县人民检察院经依法审查认为犯罪嫌疑人董某民虐待家庭成员情节恶劣，以涉嫌虐待罪依法批准逮捕。公安机关将对涉案犯罪事实，包括涉嫌收买被拐卖妇女等犯罪开展侦查取证工作。
 
-** 孙国祥 南京大学法学院教授 刑法学专家：“通常的虐待就是对被害人长期地连续地进行打骂、进行有病不给治疗、或者是拘禁、或者是侮辱这些行为方式来表现出来的。那么从董某的行为特征来看的话，他对小花梅也就是本案的被害人，进行了捆绑、用铁链绕脖子、有病不及时进行有效的治疗等方法。这些方法已经成立了刑法中的虐待行为。非法拘禁的行为是单一的，用单一的非法拘禁的罪名来评价是不全面的。所以虐待罪更加符合这类的特征。”**
+**孙国祥 南京大学法学院教授 刑法学专家：“通常的虐待就是对被害人长期地连续地进行打骂、进行有病不给治疗、或者是拘禁、或者是侮辱这些行为方式来表现出来的。那么从董某的行为特征来看的话，他对小花梅也就是本案的被害人，进行了捆绑、用铁链绕脖子、有病不及时进行有效的治疗等方法。这些方法已经成立了刑法中的虐待行为。非法拘禁的行为是单一的，用单一的非法拘禁的罪名来评价是不全面的。所以虐待罪更加符合这类的特征。”**
 
 2月22日，丰县人民检察院对犯罪嫌疑人桑某妞、时某忠以涉嫌拐卖妇女罪依法批准逮捕。公安机关将对涉案犯罪事实继续开展侦查取证工作。对犯罪嫌疑人徐某东、刘某注、霍某渠、霍某得、谭某庆、李某玲，公安机关已立案并采取刑事强制措施，继续开展侦查取证工作。对涉及此案的犯罪嫌疑人将依法予以严惩。
 
 --------
 ## 视频证据截图
 
-1. 结婚证
+1. 董某民与杨某侠结婚证
+![image](https://github.com/evilearth/evilearth.github.io/blob/4e34598bcadba7687b477b309b694111f26bcd8c/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep5-img01.png)
 
 2. 时某忠询问笔录
+![image](https://github.com/evilearth/evilearth.github.io/blob/4e34598bcadba7687b477b309b694111f26bcd8c/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep5-img03.png)
+![image](https://github.com/evilearth/evilearth.github.io/blob/4e34598bcadba7687b477b309b694111f26bcd8c/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep5-img04.png)
 
 3. 已被拆除的铁链女小黑屋现状
+![image](https://github.com/evilearth/evilearth.github.io/blob/4e34598bcadba7687b477b309b694111f26bcd8c/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep5-img02.png)
 
