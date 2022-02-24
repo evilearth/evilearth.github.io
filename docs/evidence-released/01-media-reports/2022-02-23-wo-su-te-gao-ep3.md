@@ -1,5 +1,5 @@
 
-# 我苏特稿微博：第3集 | 8名子女均与杨某侠、董某民存在生物学亲子关系
+# 我苏特稿：第3集 | 8名子女均与杨某侠、董某民存在生物学亲子关系
 22-2-23 14:26 [resource](https://weibo.com/7474091977/LgNGihqEq)
 
 
@@ -18,8 +18,14 @@
 ## 视频证据截图
 
 1. 徐州市公安局物证鉴定所亲子鉴定书
+![image](https://github.com/evilearth/evilearth.github.io/blob/16907ad11bdd475915db5d482f91555f286ab3b5/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep3-img01.png)
+![image](https://github.com/evilearth/evilearth.github.io/blob/16907ad11bdd475915db5d482f91555f286ab3b5/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep3-img02.png)
+![image](https://github.com/evilearth/evilearth.github.io/blob/16907ad11bdd475915db5d482f91555f286ab3b5/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep3-img03.png)
 
 2. 南京医科大学司法鉴定所司法鉴定意见书
+![image](https://github.com/evilearth/evilearth.github.io/blob/16907ad11bdd475915db5d482f91555f286ab3b5/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep3-img04.png)
+![image](https://github.com/evilearth/evilearth.github.io/blob/16907ad11bdd475915db5d482f91555f286ab3b5/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep3-img05.png)
+![image](https://github.com/evilearth/evilearth.github.io/blob/16907ad11bdd475915db5d482f91555f286ab3b5/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep3-img06.png)
 
 3. 公安部物证检验中心鉴定文书
-
+![image](https://github.com/evilearth/evilearth.github.io/blob/16907ad11bdd475915db5d482f91555f286ab3b5/docs/evidence-released/03-screen-shot/2022-02-23-wo-su-te-gao-ep3-img07.png)
